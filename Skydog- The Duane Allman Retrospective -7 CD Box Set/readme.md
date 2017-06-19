@@ -11,6 +11,6 @@
 
 [cd5](cd5)
 
-[cd6](https://littleflute.github.io/The-Allman-Brothers-Band2/cd6)
+[cd6](https://littleflute.github.io/The-Allman-Brothers-Band2/Skydog-%20The%20Duane%20Allman%20Retrospective%20-7%20CD%20Box%20Set/cd6)
 
-[cd7](https://littleflute.github.io/The-Allman-Brothers-Band2/cd7)
+[cd7](https://littleflute.github.io/The-Allman-Brothers-Band2/Skydog-%20The%20Duane%20Allman%20Retrospective%20-7%20CD%20Box%20Set/cd7)
